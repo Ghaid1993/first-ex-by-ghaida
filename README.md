@@ -1,3 +1,2 @@
 # first-ex-by-ghaida
 ......first ex by ghaida........
-i have studied at damascus univercity
